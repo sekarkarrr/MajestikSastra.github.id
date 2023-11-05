@@ -1,0 +1,1 @@
+# MajestikSastra.github.id
